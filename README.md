@@ -2,6 +2,8 @@
 
 Presentation Slides: https://paper.dropbox.com/doc/present/R1Tx0G8JWpFP8H5WO4C9H
 
+Open Class Video: https://www.youtube.com/watch?v=LReRKUhkh08
+
 ## About Me
 ****
 **Beeno Tung**
